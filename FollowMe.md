@@ -26,6 +26,7 @@
 - I have an increasing number of followers on LinkedIn.
 - I'm blessed to have wonderful people following me.
 - I want to give hope and faith to the girls that follow me.
+- Follow me,I'm said. "And do stay together. And by the way, this is the last time I go anywhere with you people. You are all insane. 
 - What do you want for your life? And how are you going to get it? Figure that out. And then follow me to gloryville.
 - If I tell you not to follow me, it ain't because I hate you, kiddo.I just don't want you feel dissapointed...when seeing the truth.
 - If I advance; follow me. If I retreat; kill me. If I die; avenge me! It is better to live one day as a lion than one-hundred years as a sheep! 
