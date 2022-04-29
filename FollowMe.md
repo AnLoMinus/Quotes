@@ -1,4 +1,5 @@
 # FollowMe
+- I strive to impress myself
 - Criticism is inevitable when there are people following you.
 - Requesting you to Follow me.
 - I can make you follow me to hell. 
