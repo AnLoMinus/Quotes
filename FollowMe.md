@@ -26,7 +26,13 @@
 - I have an increasing number of followers on LinkedIn.
 - I'm blessed to have wonderful people following me.
 - I want to give hope and faith to the girls that follow me.
-
+- What do you want for your life? And how are you going to get it? Figure that out. And then follow me to gloryville.
+- If I tell you not to follow me, it ain't because I hate you, kiddo.I just don't want you feel dissapointed...when seeing the truth.
+- If I advance; follow me. If I retreat; kill me. If I die; avenge me! It is better to live one day as a lion than one-hundred years as a sheep! 
+- At some point he has to show that he has a vision of a better way. He can't just say 'The future is bleak, follow me.' Because no one will. 
+- I hate the idea of repeating myself. I need new perspectives and challenges for each project, and I'm very happy that many people are able to follow me without any problem.
+- You can say what you want about me. You can yell at me with a video camera and be TMZ. You can follow me around and take pictures all you want. I don't care. 
+- You ask yourself, 'What do you want your legacy to be?' I'm content at this point to say, 'Those who follow me.' Romeo Crennel, Bill Belichick, Sean Payton, to name a few. I think I've got a pretty good group, so far. 
 
 
 
