@@ -35,6 +35,7 @@
 - You ask yourself, 'What do you want your legacy to be?' I'm content at this point to say, 'Those who follow me.' Romeo Crennel, Bill Belichick, Sean Payton, to name a few. I think I've got a pretty good group, so far. 
 
 
+---
 
 - No one can follow us in the afterlife.
 
