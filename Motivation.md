@@ -22,3 +22,4 @@
 ---
 
 - [Unique Israel](https://www.instagram.com/unique_il/)
+- [IL Daily Motivation](https://www.instagram.com/ildailymotivation/)
